@@ -5,3 +5,4 @@ Now some stuff i made!
 
 ## notes
 Coll Idea of other person 
+sdvidor is stupit mine was better
